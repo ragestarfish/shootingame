@@ -1,4 +1,0 @@
-# shootingame
-
-
-Your mom
